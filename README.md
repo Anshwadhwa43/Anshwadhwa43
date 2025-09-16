@@ -10,6 +10,8 @@
 - 📫 How to reach me **anshwadhwa43@gmail.com 23f3000460@ds.study.iitm.ac.in**
 
 - ⚡ Fun fact **I love reading**
+  
+- 😄 Pronouns: ... **He/Him.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
